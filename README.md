@@ -1,13 +1,13 @@
 # BabyDoge - Auto Claim Bot
 
-🔗 **Referral Link**: [BabyDoge](https://t.me/BabyDogePAWS_Bot?start=r_5914982564)
+🔗 **Referral Link**: [BabyDoge](https://t.me/BabyDogePAWS_Bot?start=r_1170158500)
 
 ## 📢 Telegram Group
 
 Join our Telegram group to stay updated and get instructions on how to use this tool:
 
-- [Smart Airdrop](https://t.me/smartairdrop2120)
-- [Smart Airdrop - Channel](https://t.me/smartairdrop_channel)
+- [Smart Airdrop](https://t.me/ongkang_ongkang)
+- [Smart Airdrop - Channel](https://t.me/ongkang_ongkang)
 
 ## 🌟 Features
 
